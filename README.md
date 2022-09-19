@@ -1,5 +1,5 @@
-### Hi there Friends 👋
-
+### Namaste Everyone🙏🏼
+Thank you for visiting my profile
 <!--
 **ParthasarathiMahana/ParthasarathiMahana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
